@@ -188,7 +188,7 @@ ICS Security Analyst @ Norlys
 [https://www.linkedin.com/in/mitchellimpey/](https://www.linkedin.com/in/mitchellimpey/)  
 
 ## Magnus Jørgensen (Fixi)
-Director @ FlexiNetwork   
+Junior Cyber Security Analyst @ Dubex A/S  
 [https://www.linkedin.com/in/fixi/](https://www.linkedin.com/in/fixi/)  
 [https://twitter.com/FixiDK](https://twitter.com/FixiDK)  
 
